@@ -10,5 +10,5 @@ Meu nome é Gabrieli
 
 - trindade.gabrieli@escola.pr.gov.br
 
-![](https://media1.tenor.com/m/R-RiAplyVp0AAAAC/im-not-okay-rafe-cameron.gif)
+![](https://media1.tenor.com/m/YcRLyel0MgcAAAAC/mikey-tokyo-revengers-tokyo-revengers.gif)
 
